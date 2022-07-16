@@ -1,2 +1,2 @@
-# pandora
-do everything you want
+# 这是潘多拉的盒子
+来到这儿请别客气，做你想做的事情，什么都行--by kashinnu 15:49 16/07
